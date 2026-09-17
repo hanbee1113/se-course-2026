@@ -1,3 +1,3 @@
 # se-course-2026
 
-Hi. let me introduce myslef. my name is Hanbee, and you can call me also Vivian. anything you want! my major is software engineering 3th grade. My school number is 2024216029. My goal is ranked in our team project.thanks. xoxo.
+안녕하세요, 저는 서경대학교 소프트웨어학과 2024216029 김한비 입니다. 저의 이번 학기 목표는 선후배들과 함께 학교 공모전에 참여해 본선까지 진출하는 것입니다. 3학년의 마지막 학기인 만큼 후회없도록 열심히 배우겠습니다.
